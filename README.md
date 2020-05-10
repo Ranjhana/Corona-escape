@@ -16,7 +16,7 @@ We have habit of knocking doors. whether we go out to others place or even at ou
     whenever your are at others house or at your house, don't knock gate. As definitely your hands will be dirty or they could be             contagious with covid-19 virus. The best way is call by voice or make a call to the family member whoever inside.
     
     Escape: 
-    after stepping in the first work try to take out slippers, shoes etc. outer space in your home. Then second work is to wash your             hands and feet. Also dont forget to senatize other stuff whatever you brought or was withing you.
+    after stepping in the first work try to take out slippers, shoes etc. outer space in your home. Then second work is to wash your             hands and feet. Also dont forget to senatize other stuff whatever you brought or was within you.
     
 Habit #3
 
@@ -45,4 +45,11 @@ Money
  Mobile
  
     Escape: Senatize your phone as till now it was only beneficial and if not used with proper care you denitely will end up in danger.     So senatize it frequently. Keep track of uses when you have used it with or without senatize hand. 
+    
+ Habit #7
+ Sitting where ever you get place
+ 
+    Esccape: 
+    definitely this need to end. Try to avoid sitting in public places and others home, shops etc.  
+    
           
